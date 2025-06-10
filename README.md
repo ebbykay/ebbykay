@@ -1,5 +1,5 @@
-Hello, 
-I’m Ebenezer Kwakye, a dynamic blend of Data Analyst, Tech Educator, and Business & Development Strategist.<br>🌱 I'm passionate about using my background in Computing and Actuarial Science to empower businesses, students, and communities globally. I'm currently sharpening my Data <br> I’m looking to collaborate on more Data-driven and innovative projects<br>📫 reach me here: kwakyeebenezer3520@gmail.com / +233503737821
+Hello, <br>
+I’m Ebenezer Kwakye, a dynamic blend of Data Analyst, Tech Educator, and Business & Development Strategist.<br>🌱 Passionate about using my background in Computing and Actuarial Science to empower businesses, students, and communities globally.<br> If you're looking to collaborate on any Data-driven and innovative projects,<br>📫 reach me here: kwakyeebenezer3520@gmail.com / +233503737821
 
 
 ## 🌐 Socials:
