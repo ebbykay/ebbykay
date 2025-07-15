@@ -1,4 +1,4 @@
-A dynamic blend of Data, Innovation, and Investment.<br>🌱 Passionate about using my background in Computing and Actuarial Science to empower businesses, students, and communities globally.<br> If you're looking to collaborate on any Data-driven and innovative projects,<br>
+A dynamic blend of Data, Innovation, and Investment🌱.<br> Passionate about using my background in Computing and Actuarial Science to empower businesses, learners, and communities globally.<br> If you're looking to collaborate on any Data-driven and innovative projects,<br>
 
 📫 reach me here: kwakyeebenezer3520@gmail.com / +233503737821
 
